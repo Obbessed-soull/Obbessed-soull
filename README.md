@@ -1,0 +1,6 @@
+- 👋 Hi, I’m @Obbessed-soull
+- 👀 I’m interested in ...full stack developer 
+- 🌱 I’m currently learning ...python & ethical hacking
+- 💞️ I’m looking to collaborate on ...
+- 📫 How to reach me ...Instagram 
+-                       userid- ix_sumit_x 
